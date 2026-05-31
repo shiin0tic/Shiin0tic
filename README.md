@@ -4,7 +4,7 @@ I'm Lucy,, I am 15-years-old, turning 16 in June. I am 🇨🇦!
 
 Dni: 12- and 19+ , weird ppl , pedos/zoos/maps/ect... , problematic people , basic dni basically
 
-Thin ice: Starters fandom (it makes me uncomfy...) , people who use subtwts such as sh3dtwt (no judgement here! i, unfortunately, used to be on those a couple years ago, but I have recovered.)
+Thin ice: Starters fandom (it makes me uncomfy...) , proshippers (I am against proshipping, NOT proshippers! i understand that it is a trauma induced interest, so I don't mind interacting with proshippers. But I would rather not talk about the content if possible <3)
 
 PLEASE int: Pokemon fandom!! especially on PT , ummm basically anyone who isnt in my dni!
 
