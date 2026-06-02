@@ -6,7 +6,7 @@
 
 ⤷ Dni: 12- and 19+ , weird ppl , pedos/zoos/maps/ect... , problematic people , basic dni basically
 
-⤷ Thin ice: Starters fandom (it makes me uncomfy...) , proshippers (I am against proshipping, NOT proshippers! i understand that it is a trauma induced interest, so I don't mind interacting with proshippers. But I would rather not talk about the content if possible <3)
+⤷ Thin ice: Starters fandom (it makes me uncomfy...)
 
 ⤷ PLEASE int: Pokemon fandom!! especially on PT , ummm basically anyone who isnt in my dni!
 
